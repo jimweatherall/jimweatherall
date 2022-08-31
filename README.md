@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jim [aka James Owen] Weatherall [@jimweatherall]
+- 👋 Hi, I’m Jim Weatherall [aka James Owen Weatherall; @jimweatherall]
 - 👀 I’m a philosopher of science at UC Irvine working on philosophy of physics and social epistemology
 - 📫 Visit my website at https://www.jamesowenweatherall.com or email me at weatherj@uci.edu
 
